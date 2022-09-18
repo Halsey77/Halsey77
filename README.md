@@ -7,7 +7,7 @@
 6. :office: I’m looking to collaborate on small or medium projects on *making game, web application* or simply small projects
 to learn more about programing.
 7. 📫 You can contact me via my email:
-  + Gmail: provcc143300@gmail.com
+  + Gmail: nhathuypg2077@gmail.com
   + Outlook: 19120536@student.hcmus.edu.vn
 
 <!---
